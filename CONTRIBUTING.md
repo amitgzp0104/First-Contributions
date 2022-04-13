@@ -13,7 +13,7 @@
 ---
 
 - ### **A**
-   - [Amit Gupta](https://github.com/amitguptagzp.0104@gmai.com-Amitgzp0104)
+   - [Amit Gupta](https://github.com/-Amitgzp0104)
 
 
 - ### **B**
