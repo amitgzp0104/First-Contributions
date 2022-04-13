@@ -13,7 +13,7 @@
 ---
 
 - ### **A**
-   - [Akshat Sharma](https://github.com/akshatcoder-hash)
+   - [Amit Gupta](https://github.com/amitguptagzp.0104@gmai.com-Amirgzp0104)
 
 
 - ### **B**
